@@ -20,7 +20,7 @@ Wherever you found yourself you always strived to
 
 Create a home for you and your daughters
 
-There would always be cherry blossoms, blueberry brambles
+There would always be cherry blossoms, blueberry bushes
 
 The Meremac river drifting somewhere nearby
 

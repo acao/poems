@@ -9,4 +9,5 @@
 * [For Lillian](for-lillian.md)
 * [Incomprehensible Earth](incomprehensible-earth.md)
 * [Forgiveness Is Exhausting](forgiveness-is-exhausting.md)
-
+* [Astrologer's Song](astrologers-song.md)
+* [Cracking Open](cracking-open)

@@ -10,4 +10,5 @@
 * [Incomprehensible Earth](incomprehensible-earth.md)
 * [Forgiveness Is Exhausting](forgiveness-is-exhausting.md)
 * [Astrologer's Song](astrologers-song.md)
-* [Cracking Open](cracking-open)
+* [Cracking Open](cracking-open.md)
+* [Letting Go of Giving In](letting-go-of-giving-in.md)
